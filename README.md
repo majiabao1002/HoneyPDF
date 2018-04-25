@@ -17,4 +17,4 @@ HoneyPDF is a mobile phone PDF file reader. It adopts new technology to optimize
 
 7, support the bookmark function, record what you see
 
-Contact： If you have any questions, you may contact technical support： Phone：+601112177670 Email：JonGil333@gmail.com
+Contact： If you have any questions, you may contact technical support： Phone：+601112177689 Email：Rachel Alonsol750@gmail.com
